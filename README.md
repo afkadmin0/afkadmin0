@@ -1,3 +1,3 @@
-## Sometimes maybe good..
+Sometimes maybe good..
 
-## Sometimes may be shit
+Sometimes may be shit...
